@@ -8,3 +8,6 @@ Effects of Process Parameters on Attainable Feature Heights in Photoinduced Mara
 ![WhatsApp Image 2023-02-07 at 8 55 28 AM](https://user-images.githubusercontent.com/118174531/217419271-28f3876d-e920-48d8-93c3-312eed8f4d71.jpeg)
 ![WhatsApp Image 2023-02-07 at 8 55 28 AM (1)](https://user-images.githubusercontent.com/118174531/217419283-b048dee2-5e30-43c1-a072-9c08a25551bf.jpeg)
 ![WhatsApp Image 2023-02-07 at 8 55 34 AM](https://user-images.githubusercontent.com/118174531/217419298-d4e589ba-fcf3-4de7-a53e-482e2e806900.jpeg)
+![WhatsApp Image 2023-02-07 at 8 55 34 AM (1)](https://user-images.githubusercontent.com/118174531/217419511-efe25f9e-92ff-4efa-a20f-08fb5ea7612a.jpeg)
+![WhatsApp Image 2023-02-07 at 8 55 35 AM](https://user-images.githubusercontent.com/118174531/217419520-f05f026e-ed14-4c02-94c5-5e775af5c9fe.jpeg)
+![WhatsApp Image 2023-02-07 at 8 55 36 AM](https://user-images.githubusercontent.com/118174531/217419531-4b65f1be-c7ba-4b8c-8171-74055f647123.jpeg)
